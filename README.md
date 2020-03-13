@@ -1,6 +1,3 @@
----
-title: Virtual PhD Visit
----
 
 ## Virtual Visit for PhD Students
 
