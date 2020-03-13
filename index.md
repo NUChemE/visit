@@ -24,7 +24,6 @@ Then, from 2 pm to 3 pm EST, you can join individual faculty and current graduat
 From 3pm, you can use the same BlueJeans rooms to meet one-on-one or in small groups with faculty, to ask them more individual questions you might have. You can “reserve” your time using the Doodle Polls (liked below). These will be open through the poster session, but they are first-come-first-serve. Please also look in the comments on the poll to make sure the person you’re signing up with is, in fact, available during that time. Faculty also welcome having conversations at other times - just shoot them an email! 
 
 
-
 ## Links
 
 Faculty | Doodle Poll | BlueJeans chat room | Other links
@@ -44,3 +43,8 @@ Ben Woolston | [doodle poll](https://doodle.com/poll/64s4tefrms25c8c7)  | [BlueJ
 Anand Asthagiri | [doodle poll](https://doodle.com/poll/s8vw75mhute2wm5z)  | [BlueJeans room](https://bluejeans.com/449477617) 
 Sri Sridhar | [doodle poll](https://doodle.com/poll/m5n9ve3xpkfr8gdt)  | [BlueJeans room](https://bluejeans.com/571113460) | [Website](http://srinivassridhar.com)
 Sanjeev Mukerjee | [doodle poll](https://doodle.com/poll/zxehw5g8yn8tpket)  | [BlueJeans room](https://bluejeans.com/139826846) 
+
+## Other Links and resources
+
+- [Virtual Campus Tour](https://www.youvisit.com/tour/northeastern) for the university.
+- [Scholarship Reports](https://che.northeastern.edu/faculty/scholarship-reports/) for the department.
