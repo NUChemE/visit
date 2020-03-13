@@ -4,7 +4,7 @@ title: Virtual PhD Visit
 
 ## Virtual Visit for PhD Students
 
-Welcome to the Virtual Visit Day for the **Chemical Engineering Department at Northeastern University**!
+Welcome to the Virtual Visit Day for the **[Department of Chemical Engineering at Northeastern University](https://che.northeastern.edu)**!
 
 We are disappointed we won’t be able to meet you in person this week and show you around the department. However, we still want to share what studying Northeastern is like, and what you can expect while pursuing your PhD with us. We have set up an info session, a virtual Poster Session and 1:1 faculty meetings. We have never attempted to do something like this online, so please forgive any technical glitches. However, we think this is an exciting way to help you reach an informed decision, while still keeping you safe.
 
