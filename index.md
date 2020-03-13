@@ -28,18 +28,18 @@ From 3pm, you can use the same BlueJeans rooms to meet one-on-one or in small gr
 
 Faculty | Doodle Poll | BlueJeans chat room | Other links
 ----|-----|-----|-----
-Ming Su | [doodle poll](https://doodle.com/poll/cqqgif5fyph56m25)  | [BlueJeans room](https://bluejeans.com/768148658) 
+Ming Su | [doodle poll](https://doodle.com/poll/cqqgif5fyph56m25)  | [BlueJeans room](https://bluejeans.com/768148658) | [Poster](https://www.dropbox.com/s/bcl5uoukmylfmr5/Ming%20Su%20-%20Poster_Ming%20Su%20Lab.pdf?dl=0)
 Sara Hashmi | [doodle poll](https://doodle.com/poll/k7yfybi8dc5i54q9)  | [BlueJeans room](https://bluejeans.com/494742818) 
 Richard West | [doodle poll](https://doodle.com/poll/fwkhr2bg3mkh7gw7) 3-4:15 | [BlueJeans room](https://bluejeans.com/178621796) | [Lab Video](https://www.dropbox.com/s/mu2ko2gzqpy6k3u/Richard%20West%20-%20CoMoChEng.mov?dl=0) (11s)
 Andrew Jones | [doodle poll](https://doodle.com/poll/qehzdkqtqucrgkri)  | [BlueJeans room](https://bluejeans.com/790668326) | [Lab Video](https://www.dropbox.com/s/1z3n282a5bz1shh/Andrew%20Jones%20-%20Joshua%20Prince%20-%20Untitled%20Project%20%E2%80%90%20Made%20with%20Clipchamp.mp4?dl=0) (6m15)
 Carolyn Lee-Parsons | [doodle poll](https://doodle.com/poll/m4zc4ezek9mmabsc) 3-4:15 | [BlueJeans room](https://bluejeans.com/225878738) | [Lab Video 1](https://www.dropbox.com/s/knhpsh3hha3zo7j/Carolyn%20Lee-Parsons%20-%20Lee-Parsons%20Lab%20Tour%20part%201.mov?dl=0) (2m42), [Lab Video 2](https://www.dropbox.com/s/6wllpc4nv48vqkx/Carolyn%20Lee-Parsons%20-%20Lee-Parsons%20Lab%20Tour%20part%202.mov?dl=0) (1m58), [Poster](https://www.dropbox.com/s/lji52jl5y8nk6eb/Carolyn%20Lee-Parsons%20-%202020%20Lee-Parsons%20Research%20Group%20Poster.pdf?dl=0)
-Joshua Gallaway | [doodle poll](https://doodle.com/poll/eic9qqy9yxqh55yc) 3-4 | [BlueJeans room](https://bluejeans.com/677349709) | [Poster](https://www.dropbox.com/s/g9axh8f0e4mpvvu/Josh%20Gallaway%20ASSB.pdf?dl=0)
+Joshua Gallaway | [doodle poll](https://doodle.com/poll/eic9qqy9yxqh55yc) 3-4 | [BlueJeans room](https://bluejeans.com/677349709) | [Poster 1](https://www.dropbox.com/s/g9axh8f0e4mpvvu/Josh%20Gallaway%20ASSB.pdf?dl=0), [Poster 2](https://www.dropbox.com/s/77emi9sh32d7254/matt%20kim%20-%20Matt%20Kim%27s%20Poster.pdf?dl=0)
 Eno Ebong | [doodle poll](https://doodle.com/poll/55khp46xugxh84fu) 3-4:30 | [BlueJeans room](https://bluejeans.com/971981002) | [Poster 1](https://www.dropbox.com/s/nfj7dqd5vlrycqh/Ebong%20Lab%20Poster_NIH%26AHA%20Project.pdf?dl=0), [Poster 2](https://www.dropbox.com/s/hr275svix371w65/Ebong%20Lab%20Poster_NIH%26IGERT%20Project.pdf?dl=0), [Poster 3](https://www.dropbox.com/s/4x72aerizy8i3g9/Ebong%20Lab%20Poster_NSF%20Project.pdf?dl=0), [Slides](https://www.dropbox.com/s/mqbl6p2mbuqwfnr/Ebong%20Lab%20Presentation_Other%20Work.pdf?dl=0)
 Sidi Bencherif | [doodle poll](https://doodle.com/poll/hc8ckrhtp8ich2by)  | [BlueJeans room](https://bluejeans.com/609984239) 
 Abby Koppes | [doodle poll](https://doodle.com/poll/gks5yyfpbzsyfmmw)  | [BlueJeans room](https://bluejeans.com/576476819) | [Poster](https://www.dropbox.com/s/c8mifbsrfzq66xa/Abigail%20Koppes%20-%20Koppes%20ABNEL%20Poster%20uFluid%20landscape.pdf?dl=0)
-Ryan Koppes | [doodle poll](https://doodle.com/poll/k8q78qfrxhkpi8wu)  | [BlueJeans room](https://bluejeans.com/349517527) 
+Ryan Koppes | [doodle poll](https://doodle.com/poll/k8q78qfrxhkpi8wu)  | [BlueJeans room](https://bluejeans.com/349517527) | [Poster](https://www.dropbox.com/s/t2jzdmnerm5bsf0/Ryan%20Koppes%20-%20LNNR%20Recruitment%20Poster%203_14_2018.pdf?dl=0)
 Steve Lustig | [doodle poll](https://doodle.com/poll/sruz8qecc5ycxfmr) 4-6 | [BlueJeans room](https://bluejeans.com/433720950) 
-Ben Woolston | [doodle poll](https://doodle.com/poll/64s4tefrms25c8c7)  | [BlueJeans room](https://bluejeans.com/245284758) 
+Ben Woolston | [doodle poll](https://doodle.com/poll/64s4tefrms25c8c7)  | [BlueJeans room](https://bluejeans.com/245284758) | [Poster](https://www.dropbox.com/s/zrplx9hkpr0j3na/Benjamin%20Woolston%20-%2020190314%20Prospective%20Students%20Day%20Poster%20Woolston%20v3.pdf?dl=0)
 Anand Asthagiri | [doodle poll](https://doodle.com/poll/s8vw75mhute2wm5z)  | [BlueJeans room](https://bluejeans.com/449477617) 
 Sri Sridhar | [doodle poll](https://doodle.com/poll/m5n9ve3xpkfr8gdt)  | [BlueJeans room](https://bluejeans.com/571113460) | [Website](http://srinivassridhar.com)
 Sanjeev Mukerjee | [doodle poll](https://doodle.com/poll/zxehw5g8yn8tpket)  | [BlueJeans room](https://bluejeans.com/139826846) 
