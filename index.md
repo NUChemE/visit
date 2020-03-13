@@ -37,7 +37,6 @@ Carolyn Lee-Parsons | [doodle poll](https://doodle.com/poll/m4zc4ezek9mmabsc)  |
 Joshua Gallaway | [doodle poll](https://doodle.com/poll/eic9qqy9yxqh55yc)  | [BlueJeans room](https://bluejeans.com/677349709) 
 Eno Ebong | [doodle poll](https://doodle.com/poll/55khp46xugxh84fu)  | [BlueJeans room](https://bluejeans.com/971981002) 
 Sidi Bencherif | [doodle poll](https://doodle.com/poll/hc8ckrhtp8ich2by)  | [BlueJeans room](https://bluejeans.com/609984239) 
-Laura Lewis | [doodle poll](https://doodle.com/poll/s2ag2saca2h8tbx4)  | [BlueJeans room](https://bluejeans.com/473155472) 
 Abby Koppes | [doodle poll](https://doodle.com/poll/gks5yyfpbzsyfmmw)  | [BlueJeans room](https://bluejeans.com/576476819) 
 Ryan Koppes | [doodle poll](https://doodle.com/poll/k8q78qfrxhkpi8wu)  | [BlueJeans room](https://bluejeans.com/349517527) 
 Steve Lustig | [doodle poll](https://doodle.com/poll/sruz8qecc5ycxfmr)  | [BlueJeans room](https://bluejeans.com/433720950) 
