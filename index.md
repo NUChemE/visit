@@ -36,7 +36,7 @@ Carolyn Lee-Parsons | [doodle poll](https://doodle.com/poll/m4zc4ezek9mmabsc) 3-
 Joshua Gallaway | [doodle poll](https://doodle.com/poll/eic9qqy9yxqh55yc) 3-4 | [BlueJeans room](https://bluejeans.com/677349709) 
 Eno Ebong | [doodle poll](https://doodle.com/poll/55khp46xugxh84fu) 3-4:30 | [BlueJeans room](https://bluejeans.com/971981002) 
 Sidi Bencherif | [doodle poll](https://doodle.com/poll/hc8ckrhtp8ich2by)  | [BlueJeans room](https://bluejeans.com/609984239) 
-Abby Koppes | [doodle poll](https://doodle.com/poll/gks5yyfpbzsyfmmw)  | [BlueJeans room](https://bluejeans.com/576476819) 
+Abby Koppes | [doodle poll](https://doodle.com/poll/gks5yyfpbzsyfmmw)  | [BlueJeans room](https://bluejeans.com/576476819) | [Poster](https://www.dropbox.com/s/c8mifbsrfzq66xa/Abigail%20Koppes%20-%20Koppes%20ABNEL%20Poster%20uFluid%20landscape.pdf?dl=0)
 Ryan Koppes | [doodle poll](https://doodle.com/poll/k8q78qfrxhkpi8wu)  | [BlueJeans room](https://bluejeans.com/349517527) 
 Steve Lustig | [doodle poll](https://doodle.com/poll/sruz8qecc5ycxfmr) 4-6 | [BlueJeans room](https://bluejeans.com/433720950) 
 Ben Woolston | [doodle poll](https://doodle.com/poll/64s4tefrms25c8c7)  | [BlueJeans room](https://bluejeans.com/245284758) 
