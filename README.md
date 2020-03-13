@@ -1,7 +1,7 @@
 ---
 title: Virtual PhD Visit
 ---
-# Virtual Visit
+
 ## Virtual Visit for PhD Students
 
 Welcome to the Virtual Visit Day for the Chemical Engineering Department at Northeastern University!
