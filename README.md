@@ -8,17 +8,23 @@ Welcome to the Virtual Visit Day for the Chemical Engineering Department at Nort
 
 We are disappointed we won’t be able to meet you in person this week and show you around the department. However, we still want to share what studying Northeastern is like, and what you can expect while pursuing your PhD with us. We have set up an info session, a virtual Poster Session and 1:1 faculty meetings. We have never attempted to do something like this online, so please forgive any technical glitches. However, we think this is an exciting way to help you reach an informed decision, while still keeping you safe.
 
-## Program of events: Friday March 13th
-
-Starting at 1:30 pm EST, we will have a Chemical Engineering Department Information Session hosted by Academic Coordinator Sarah Dosier and myself. We will give you an overview of the department and our programs. Please use [this link](https://bluejeans.com/735844639) to join us. (If you've not used BlueJeans before, install and test your system [here](https://bluejeans.com/111/new)). 
-
-Then, from 2 pm to 3 pm EST, you can join individual faculty and current graduate students in virtual poster sessions. We'll have a video chat room for each research group. Here, you can chat with faculty about their research, ask students what they’re working on, and get a feeling for what working in a lab with us is like. Links are below.
-
-After that, you can use the same links to meet one-on-one or in small groups with faculty, to ask them more individual questions you might have. You can “reserve” your time using the Doodle Polls. These will be open through the poster session, but they are first-come-first-serve. Please also look in the comments on the poll to make sure the person you’re signing up with is, in fact, available during that time.  Links are below.
-
-If you have any questions about this, or anything else related to Northeastern, please email Sarah Dosier at s.dosier@northeastern.edu. She’ll do her best to reply quickly.
+If you have any questions about the day, or anything else related to Northeastern, please email Sarah Dosier at s.dosier@northeastern.edu. She’ll do her best to reply quickly.
 
 We look forward to (virtually) meeting you!
+
+## Program of events: Friday March 13th
+
+### Info session
+Starting at 1:30 pm EST, we will have a Chemical Engineering Department Information Session hosted by Academic Coordinator Sarah Dosier and myself. We will give you an overview of the department and our programs. Please use [this link](https://bluejeans.com/735844639) to join us. (If you've not used BlueJeans before, install and test your system [here](https://bluejeans.com/111/new)). 
+
+### Poster session
+Then, from 2 pm to 3 pm EST, you can join individual faculty and current graduate students in virtual poster sessions. We'll have a video chat room for each research group. Here, you can chat with faculty about their research, ask students what they’re working on, and get a feeling for what working in a lab with us is like. Links are below.
+
+### Faculty interviews
+From 3pm, you can use the same BlueJeans rooms to meet one-on-one or in small groups with faculty, to ask them more individual questions you might have. You can “reserve” your time using the Doodle Polls (liked below). These will be open through the poster session, but they are first-come-first-serve. Please also look in the comments on the poll to make sure the person you’re signing up with is, in fact, available during that time. Faculty also welcome having conversations at other times - just shoot them an email! 
+
+
+
 
 
 ## Links
