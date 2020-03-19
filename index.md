@@ -30,20 +30,21 @@ From 3pm, you can use the same BlueJeans rooms to meet one-on-one or in small gr
 
 Faculty | Other links
 ----|-----
-Ming Su | [Poster](https://www.dropbox.com/s/bcl5uoukmylfmr5/Ming%20Su%20-%20Poster_Ming%20Su%20Lab.pdf?dl=0)
-Sara Hashmi | 
-Richard West | [Lab Video](https://www.dropbox.com/s/mu2ko2gzqpy6k3u/Richard%20West%20-%20CoMoChEng.mov?dl=0) (11s), [Poster](https://www.dropbox.com/s/c948ps3a4foftvd/Richard%20West%20-%20RecruitmentPoster.pdf?dl=0), [Website](https://web.northeastern.edu/comocheng/)
-Andrew Jones | [Lab Video](https://www.dropbox.com/s/1z3n282a5bz1shh/Andrew%20Jones%20-%20Joshua%20Prince%20-%20Untitled%20Project%20%E2%80%90%20Made%20with%20Clipchamp.mp4?dl=0) (6m15), [Slides](https://www.dropbox.com/s/5prypojjr0gakwq/A-Andrew%20Jones%20-%20Jones%20SEE%20Lab%20Introduction%202020-03-13.pdf?dl=0), [Website](http://web.northeastern.edu/see)
-Carolyn Lee-Parsons | [Lab Video 1](https://www.dropbox.com/s/knhpsh3hha3zo7j/Carolyn%20Lee-Parsons%20-%20Lee-Parsons%20Lab%20Tour%20part%201.mov?dl=0) (2m42), [Lab Video 2](https://www.dropbox.com/s/6wllpc4nv48vqkx/Carolyn%20Lee-Parsons%20-%20Lee-Parsons%20Lab%20Tour%20part%202.mov?dl=0) (1m58), [Poster](https://www.dropbox.com/s/lji52jl5y8nk6eb/Carolyn%20Lee-Parsons%20-%202020%20Lee-Parsons%20Research%20Group%20Poster.pdf?dl=0)
-Joshua Gallaway | [Poster 1](https://www.dropbox.com/s/g9axh8f0e4mpvvu/Josh%20Gallaway%20ASSB.pdf?dl=0), [Poster 2](https://www.dropbox.com/s/77emi9sh32d7254/matt%20kim%20-%20Matt%20Kim%27s%20Poster.pdf?dl=0)
-Eno Ebong | [Poster 1](https://www.dropbox.com/s/nfj7dqd5vlrycqh/Ebong%20Lab%20Poster_NIH%26AHA%20Project.pdf?dl=0), [Poster 2](https://www.dropbox.com/s/hr275svix371w65/Ebong%20Lab%20Poster_NIH%26IGERT%20Project.pdf?dl=0), [Poster 3](https://www.dropbox.com/s/4x72aerizy8i3g9/Ebong%20Lab%20Poster_NSF%20Project.pdf?dl=0), [Slides](https://www.dropbox.com/s/mqbl6p2mbuqwfnr/Ebong%20Lab%20Presentation_Other%20Work.pdf?dl=0), [Lab Video](https://www.dropbox.com/s/25ol9fkzd2x4r3w/Michael%20Zeevi%20-%20Ebong%20Lab%20Tour.mp4?dl=0) (4m06)
-Sidi Bencherif | 
-Abby Koppes | [Poster](https://www.dropbox.com/s/c8mifbsrfzq66xa/Abigail%20Koppes%20-%20Koppes%20ABNEL%20Poster%20uFluid%20landscape.pdf?dl=0)
-Ryan Koppes | [Poster](https://www.dropbox.com/s/t2jzdmnerm5bsf0/Ryan%20Koppes%20-%20LNNR%20Recruitment%20Poster%203_14_2018.pdf?dl=0)
-Steve Lustig | [Slides](https://www.dropbox.com/s/af4fldy3l0womk1/Steve%20Lustig%20-%20Lustig-NewGrad20200313.pptx?dl=0) 
-Ben Woolston | [Poster](https://www.dropbox.com/s/zrplx9hkpr0j3na/Benjamin%20Woolston%20-%2020190314%20Prospective%20Students%20Day%20Poster%20Woolston%20v3.pdf?dl=0)
-Sri Sridhar | [Website](http://srinivassridhar.com)
-Sanjeev Mukerjee | [Poster](https://www.dropbox.com/s/hvxqfkocuw2gnrc/Sanjeev%20Mukerjee%20-%20poster-NUCRET%20.ppxt%20%20-%20%20Read-Only.pdf?dl=0), [Slides](https://www.dropbox.com/s/kamvs7y1l799xb3/Sanjeev%20Mukerjee%20-%20NEU%20Energy%20Presentation-3%202.pptx?dl=0)
+[Ming Su](https://coe.northeastern.edu/people/su-ming/#_ga=2.252430474.2027957177.1584590377-1532641833.1579061084) | [Poster](https://www.dropbox.com/s/bcl5uoukmylfmr5/Ming%20Su%20-%20Poster_Ming%20Su%20Lab.pdf?dl=0)
+[Sara Hashmi](https://coe.northeastern.edu/people/hashmi-sara-m/) | 
+[Richard West](https://coe.northeastern.edu/people/west-richard/) | [Lab Video](https://www.dropbox.com/s/mu2ko2gzqpy6k3u/Richard%20West%20-%20CoMoChEng.mov?dl=0) (11s), [Poster](https://www.dropbox.com/s/c948ps3a4foftvd/Richard%20West%20-%20RecruitmentPoster.pdf?dl=0), [Website](https://web.northeastern.edu/comocheng/)
+[Andrew Jones](https://coe.northeastern.edu/people/jones-andrew/) | [Lab Video](https://www.dropbox.com/s/1z3n282a5bz1shh/Andrew%20Jones%20-%20Joshua%20Prince%20-%20Untitled%20Project%20%E2%80%90%20Made%20with%20Clipchamp.mp4?dl=0) (6m15), [Slides](https://www.dropbox.com/s/5prypojjr0gakwq/A-Andrew%20Jones%20-%20Jones%20SEE%20Lab%20Introduction%202020-03-13.pdf?dl=0), [Website](http://web.northeastern.edu/see)
+[Carolyn Lee-Parsons](https://coe.northeastern.edu/people/lee-parsons-carolyn/) | [Lab Video 1](https://www.dropbox.com/s/knhpsh3hha3zo7j/Carolyn%20Lee-Parsons%20-%20Lee-Parsons%20Lab%20Tour%20part%201.mov?dl=0) (2m42), [Lab Video 2](https://www.dropbox.com/s/6wllpc4nv48vqkx/Carolyn%20Lee-Parsons%20-%20Lee-Parsons%20Lab%20Tour%20part%202.mov?dl=0) (1m58), [Poster](https://www.dropbox.com/s/lji52jl5y8nk6eb/Carolyn%20Lee-Parsons%20-%202020%20Lee-Parsons%20Research%20Group%20Poster.pdf?dl=0)
+[Joshua Gallaway](https://coe.northeastern.edu/people/gallaway-joshua/) | [Poster 1](https://www.dropbox.com/s/g9axh8f0e4mpvvu/Josh%20Gallaway%20ASSB.pdf?dl=0), [Poster 2](https://www.dropbox.com/s/77emi9sh32d7254/matt%20kim%20-%20Matt%20Kim%27s%20Poster.pdf?dl=0)
+[Eno Ebong](https://coe.northeastern.edu/people/ebong-eno/) | [Poster 1](https://www.dropbox.com/s/nfj7dqd5vlrycqh/Ebong%20Lab%20Poster_NIH%26AHA%20Project.pdf?dl=0), [Poster 2](https://www.dropbox.com/s/hr275svix371w65/Ebong%20Lab%20Poster_NIH%26IGERT%20Project.pdf?dl=0), [Poster 3](https://www.dropbox.com/s/4x72aerizy8i3g9/Ebong%20Lab%20Poster_NSF%20Project.pdf?dl=0), [Slides](https://www.dropbox.com/s/mqbl6p2mbuqwfnr/Ebong%20Lab%20Presentation_Other%20Work.pdf?dl=0), [Lab Video](https://www.dropbox.com/s/25ol9fkzd2x4r3w/Michael%20Zeevi%20-%20Ebong%20Lab%20Tour.mp4?dl=0) (4m06)
+[Sidi Bencherif](https://coe.northeastern.edu/people/bencherif-sidi/) | 
+[Abby Koppes](https://coe.northeastern.edu/people/koppes-abigail/) | [Poster](https://www.dropbox.com/s/c8mifbsrfzq66xa/Abigail%20Koppes%20-%20Koppes%20ABNEL%20Poster%20uFluid%20landscape.pdf?dl=0)
+[Ryan Koppes](https://coe.northeastern.edu/people/koppes-ryan/) | [Poster](https://www.dropbox.com/s/t2jzdmnerm5bsf0/Ryan%20Koppes%20-%20LNNR%20Recruitment%20Poster%203_14_2018.pdf?dl=0)
+[Steve Lustig](https://coe.northeastern.edu/people/lustig-steve/) | [Slides](https://www.dropbox.com/s/af4fldy3l0womk1/Steve%20Lustig%20-%20Lustig-NewGrad20200313.pptx?dl=0) 
+[Ben Woolston](https://coe.northeastern.edu/people/woolston-benjamin/) | [Poster](https://www.dropbox.com/s/zrplx9hkpr0j3na/Benjamin%20Woolston%20-%2020190314%20Prospective%20Students%20Day%20Poster%20Woolston%20v3.pdf?dl=0)
+[Sri Sridhar](https://coe.northeastern.edu/people/sridhar-srinivas/) | [Website](http://srinivassridhar.com)
+[Sanjeev Mukerjee](https://coe.northeastern.edu/people/mukerjee-sanjeev/) | [Poster](https://www.dropbox.com/s/hvxqfkocuw2gnrc/Sanjeev%20Mukerjee%20-%20poster-NUCRET%20.ppxt%20%20-%20%20Read-Only.pdf?dl=0), [Slides](https://www.dropbox.com/s/kamvs7y1l799xb3/Sanjeev%20Mukerjee%20-%20NEU%20Energy%20Presentation-3%202.pptx?dl=0)
+[Anand Asthagiri](https://coe.northeastern.edu/people/asthagiri-anand/) | 
 
 ## Other Links and resources
 
