@@ -12,3 +12,5 @@ Room N-130 of the Phoenix Convention Center
 CAPPUCCINO BAR, DESSERTS, AND MORE
 
 Download ICS file to your calendar [here!](reception.ics)
+
+Learn about our faculty searches [here!](https://che.northeastern.edu/faculty/faculty-positions/)
